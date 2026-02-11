@@ -1,1 +1,0 @@
-# guia-1-analisis-num
